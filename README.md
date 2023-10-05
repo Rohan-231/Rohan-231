@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning **Flask**
 
-- 👨‍💻 All of my projects are available at [https://rohanportfolio.pages.dev/](https://rohanportfolio.pages.dev/)
+- 👨‍💻 All of my projects are available at [https://rohmist.pages.dev/](https://rohmist.pages.dev/)
 
 - 💬 Ask me about **Django , Node , Java , Python**
 
