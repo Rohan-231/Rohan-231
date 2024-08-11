@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **rohanmistry03@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1uRaf4SfOFyGQxb-YWXoSJfGW1iR7jGku/view?usp=drive_link](https://drive.google.com/file/d/1uRaf4SfOFyGQxb-YWXoSJfGW1iR7jGku/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1uRaf4SfOFyGQxb-YWXoSJfGW1iR7jGku/view?usp=drive_link](https://drive.google.com/file/d/1OGOPs840brflPW1d3trw5y3nYNqNfGNq/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
